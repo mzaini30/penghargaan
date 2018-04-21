@@ -16,4 +16,7 @@
 | 2010 | [Juara Harapan 1: Asah Terampil Matematika](https://s25.postimg.cc/jcgh2fllr/gambar_0001.jpg) | Provinsi |
 | 2010 | [Juara 1: Lomba Blog](https://s25.postimg.cc/tzaa7v96n/gambar_0005.jpg) | Sekolah |
 | 2009 | [Peserta: Olimpiade Matematika](https://s25.postimg.cc/doa6bkrjz/gambar_0011.jpg) | Nasional |
-| 
+| 2009 | [Peserta: Asah Terampil Matematika](https://s25.postimg.cc/rupx6qa3z/gambar_0003.jpg) | Provinsi |
+| 2008 | [Juara 2: Lomba Pidato Bahasa Inggris](https://s25.postimg.cc/9f5g9c3pb/gambar_0010.jpg) | Kota |
+| 2006 | [Juara 1: Lomba Kaligrafi](https://s25.postimg.cc/fsujcn61b/gambar_0008.jpg) | Kota |
+| 2004 | [Juara 2: Lomba Hapalan Juz Amma](https://s25.postimg.cc/5vjijk3kf/gambar_0007.jpg) | Kota |
