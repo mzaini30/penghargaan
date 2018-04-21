@@ -6,3 +6,5 @@
 | 2016 | [Peserta: Workshop Grafologi](https://s25.postimg.org/k1z9eqwf3/gambar_0002.jpg) | Prodi |
 | 2014 | [Finalis: Web Desain](https://s25.postimg.org/oal5eau9r/Desain_web.jpg) | Nasional |
 | 2014 | [Desain Terkreatif dan Inovatif: Web Desain](https://s25.postimg.org/clzzszban/gambar_0004.jpg) | Nasional |
+| 2013 | [Juara 2: Lomba Blog](https://s25.postimg.org/nyclarrpb/gambar_0006.jpg) | Eks Karisidenan Surakarta |
+| 2012 | [Peserta: Lomba Kimia](https://s25.postimg.org/hww2b24tb/Kimia.jpg) | Eks Karisidenan Surakarta |
