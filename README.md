@@ -8,3 +8,5 @@
 | 2014 | [Desain Terkreatif dan Inovatif: Web Desain](https://s25.postimg.cc/clzzszban/gambar_0004.jpg) | Nasional |
 | 2013 | [Juara 2: Lomba Blog](https://s25.postimg.cc/nyclarrpb/gambar_0006.jpg) | Eks Karisidenan Surakarta |
 | 2012 | [Peserta: Lomba Kimia](https://s25.postimg.cc/hww2b24tb/Kimia.jpg) | Eks Karisidenan Surakarta |
+| 2012 | [Juara 2: Pidato Bahasa Indonesia](https://s25.postimg.cc/qf5ifeyhb/Pidato_bahasa_indonesia_2.jpg) | Mahad |
+| 2012 | 
