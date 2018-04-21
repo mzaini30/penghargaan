@@ -9,4 +9,6 @@
 | 2013 | [Juara 2: Lomba Blog](https://s25.postimg.cc/nyclarrpb/gambar_0006.jpg) | Eks Karisidenan Surakarta |
 | 2012 | [Peserta: Lomba Kimia](https://s25.postimg.cc/hww2b24tb/Kimia.jpg) | Eks Karisidenan Surakarta |
 | 2012 | [Juara 2: Pidato Bahasa Indonesia](https://s25.postimg.cc/qf5ifeyhb/Pidato_bahasa_indonesia_2.jpg) | Mahad |
+| 2012 | [Juara 2: Lomba Karya Tulis Ilmiah](https://s25.postimg.cc/3qz5iic8f/gambar_0009.jpg) | Mahad |
+| 2012 | [Juara 2: Karya Tulis](https://s25.postimg.cc/5v0ogx3an/Karya_tulis.jpg) | Mahad |
 | 2012 | 
