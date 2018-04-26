@@ -12,6 +12,7 @@
 
 | Tahun | Penghargaan | Tingkat |
 |-|-|-|
+| 2018 | [Peserta: Pelatihan Jurnalistik]() | Prodi |
 | 2017 | [Peserta: Sosialisasi 4 Pilar MPR RI](https://s25.postimg.cc/5gcdkhi8v/Scan351.jpg) | Nasional |
 | 2017 | [Panitia: Rakoornas ILMPI](https://s25.postimg.cc/8afixx4zj/Scan355.jpg) | Nasional |
 | 2016 | [Peserta: Workshop Grafologi](https://s25.postimg.cc/k1z9eqwf3/gambar_0002.jpg) | Prodi |
